@@ -1,12 +1,12 @@
 ## Free Vector Graphics ##
 
 
-### [Vector Stock](www.vectorstock.com) ###
+### [Vector Stock](http://www.vectorstock.com) ###
 
 Royalty free vector images and illustrations.
 
 
-### [VectorVault](www.vectorvault.com) ###
+### [VectorVault](http://www.vectorvault.com) ###
 
 Royalty free vector images and illustrations.
 
